@@ -1,3 +1,5 @@
-# Welcome to my blog
+# **Welcome** :smile:
 
-I'm glad you are here. I plan to talk about ...
+It's a good platform we can meet and talk abt. new skills
+
+:heart:
